@@ -3,7 +3,7 @@
 ໒꒱ I am evilweezer i go by she/her and a minor 🧁 usually at the homestuck area or bandom c + h is ok and im ok with interacting!! .✦ ݁˖ i am a cis girl aswell as an ally
 </p>
  <p align="center">
-<img src="https://64.media.tumblr.com/b1e69febac5f5d51ad09504b0f974f09/912c98b4331a4713-00/s500x750/94f0409613cb9ff962e55d3c73a68205fa0e0542.gif"
+<p align="left"><img width="700" src="https://static.wikia.nocookie.net/mspaintadventures/images/8/81/Del%27fi.png/revision/latest?cb=20260325202412" alt="description" /></p>
  </p>
 <p align="center">
  ^_^ ^_^ ^_^
